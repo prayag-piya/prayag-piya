@@ -2,7 +2,7 @@
 **Cybersecurity Analyst | Network Defender | AI Explorer**  
 
 📍 Thunder Bay, Canada | ✉️ [prayagpiya12@gmail.com](mailto:prayagpiya12@gmail.com)  
-🔗 [LinkedIn](#https://www.linkedin.com/in/prayag-piya/) | 🌐 [Portfolio](#http://prayagpiya.com.np)
+🔗 [LinkedIn](https://www.linkedin.com/in/prayag-piya/) | 🌐 [Portfolio](http://prayagpiya.com.np)
 
 ---
 
@@ -64,7 +64,7 @@ I'm a **Cybersecurity Analyst** with **4+ years** of experience protecting syste
 ## 📫 **Get in Touch!**  
 I’m always up for discussing tech, AI, and cybersecurity. Feel free to connect:  
 📧 [prayagpiya12@gmail.com](mailto:prayagpiya12@gmail.com)  
-🔗 [LinkedIn](#https://www.linkedin.com/in/prayag-piya/) | 🌐 [Portfolio](#http://prayagpiya.com.np)
+🔗 [LinkedIn](https://www.linkedin.com/in/prayag-piya/) | 🌐 [Portfolio](http://prayagpiya.com.np)
 
 ---
 
